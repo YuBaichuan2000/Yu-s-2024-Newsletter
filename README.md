@@ -25,3 +25,15 @@ Leetcode, need more practice on various questions, especially Dynamic Programmin
 2. Property development is not your gold mine, dive deeper into IT.
 3. DO NOT GO ANYWHERE WITHOUT INTERNET.
 4. Try cope with people you do not like. You have to do it from time to time anyways.
+
+## April
+I don't know what happened but I missed a month. Obviously, I got rejected on many applications and nothing worked out so far. I haven't applied any new positions for quite a while which is not good at all. Will get back to it once I updated my resume. I don't know if I am squandering my time but I picked up golf and I am hitting with others for 40 bucks. I did not spend much time on web development or school work. Reading books at the moment and it kind of made me anxious. Those guys seem like born to know how to make money and I still have no clue and I am nearly 24. I reckon I picked a path which sort of interests me and have wealthy potential. Maybe I need to start drilling deep. But that is just time gone and door shut for other opportunities. Don't have many connections, so I guess I have to invest in myself and attract connections at this stage. Just get really good at what you do.
+
+#### Things I learnt:
+1. Spend more time on decisions and less time on actions!
+2. My hourly rate is 100/hr
+3. Don't count otherwise you get anxious
+4. Put in daily work
+5. Happiness is a skill that you can practice from now on. Money does not solve happiness problem only money problem.
+6. Learn fundamentals, how to keep happy family relationships, try building a youtube channel starting from DB, learn some real estate before buying. Learn negotiation and sale.
+

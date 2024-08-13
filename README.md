@@ -37,3 +37,10 @@ I don't know what happened but I missed a month. Obviously, I got rejected on ma
 5. Happiness is a skill that you can practice from now on. Money does not solve happiness problem only money problem.
 6. Learn fundamentals, how to keep happy family relationships, try building a youtube channel starting from DB, learn some real estate before buying. Learn negotiation and sale.
 
+
+## August
+Struggling in life goal and preparing for interviews. Busy with multiple projects. Life with partner is also struggling. Need adjustment.
+
+#### Things I learnt:
+1. Live a goal-oriented life
+2. Embrace varience
